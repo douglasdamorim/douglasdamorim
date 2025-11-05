@@ -1,4 +1,4 @@
-# 👨🏾‍💻 Douglas Amorim - Portifólio em Construção
+# 👨🏾‍💻 Douglas Amorim
 
 **`Data Analyst | Analytics Engineer`**
 
